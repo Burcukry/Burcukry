@@ -4,7 +4,7 @@
 
 - 🔭 I’m currently working on **MERSYS LLC**
 
-- 📫 How to reach me **kiray.brc@gmail.com**
+- 📫 How to reach me **lisakaynar@gmail.com**
 
 
 <p align="left">
